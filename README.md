@@ -6,4 +6,4 @@
 
 ![RIAA_1](https://github.com/rbalmford/RIAA/assets/6553778/4fe65e15-871d-4c41-8b1e-314856a3b76c)
 
-![image](https://github.com/rbalmford/RIAA/assets/6553778/9258f637-0f34-4bfc-878d-839ed71a6bb8)
+![image](https://github.com/rbalmford/RIAA/assets/6553778/f31e0e95-5380-4eea-98ee-dfb691e21f55)
